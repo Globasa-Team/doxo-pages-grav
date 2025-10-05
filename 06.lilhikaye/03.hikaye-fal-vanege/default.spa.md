@@ -78,7 +78,7 @@ Hay wadi hu denloka moy planta armonipul jiwa. Denloka, hay sosyal regula, hu pl
  <p>Your user agent does not support the HTML5 Audio element.</p>
 </audio>
 
-Fe hataya, ban din, dayvento preporta bija of teli loka. Xafe watumon, bija kufi xunjan, fe folo ki ren abil na oko ki bija sen of jongu fe dahunli drevo hu da sen totalmo nenkonedo in hin wadi.
+Fe hataya, ban din, dayvento preporta bija of teli loka. Xafe watumon, bija kufi xunjan, ki fe folo ren abil na oko ki bija sen of jongu fe dahunli drevo hu da sen totalmo nenkonedo in hin wadi.
 
 <audio controls>
  <source src="/lilhikaye/hikaye-fal-vanege/gao drevo 03.mp3" type="audio/mp3" />
@@ -238,7 +238,7 @@ Dragon ganjon ki te haji wala xey, ji ki jali xaher no haji sen interesne. Fe fo
  <p>Your user agent does not support the HTML5 Audio element.</p>
 </audio>
 
-Xafe lungo fley, fe fini, dragon ewreka xaher. To sen nenpimpan xaher hu da loka in drevolari. Koski moyto sen sangudo bax dahun, dragon karar na pergeo. Per geo, te oko panda hu da kwasi hare nil fobi kos presen de dragon.
+Xafe lungo fley, fe fini, dragon ewreka xaher. To sen nenpimpan xaher hu da loka in drevolari. Koski moyto sen sangudo bax dahun, dragon karar na pergeocu. Per geo, te oko panda hu da kwasi hare nil fobi kos presen de dragon.
 
 <audio controls>
  <source src="/lilhikaye/hikaye-fal-vanege/dragon ji panda 03.mp3" type="audio/mp3" />
@@ -357,7 +357,7 @@ Kolorokobimar piu no rol in den konflito. Te trankwilo ergo tas sesu suli jarden
  <p>Your user agent does not support the HTML5 Audio element.</p>
 </audio>
 
-Ban din, visitane piu pergeo in jarden de kolorokobimar piu.
+Ban din, visitane piu pergeocu in jarden de kolorokobimar piu.
 
 Visitane piu loga: "Yu hare maxim meli jarden of moyto hu mi le oko da!"
 
