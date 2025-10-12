@@ -33,7 +33,7 @@ published: false
 </div>
 
 <div style="display: table; padding: 0.5em 0; table-layout: fixed; width: 100%;">
-    <div style="display: table-cell; padding-right: 0.75em;">Te xerca sui.</div>
+    <div style="display: table-cell; padding-right: 0.75em;">Te şerça sui.</div>
     <div style="display: table-cell; padding-left: 0.75em;">It searched for water.</div>
 </div>
 
