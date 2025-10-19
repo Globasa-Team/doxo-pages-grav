@@ -10,13 +10,13 @@ media_order: 'arteyen 01.mp3,arteyen 02.mp3,arteyen 03.mp3,arteyen 04.mp3,arteye
 
 Hinte sen juni rubahe. Tesu tofalari sen totalmo sefide kom wadi xafe taze dutaluji. He nil bruno or syahe burtyan sen okoible. In rubahelari, nilto sen maxmo safe kom tesu tofalari, ji te sen daymo fahuri tem to. Kos to, te name _Safe Rubahe_.
 
-Bardimosem ata. Fe soba, denwatu hu rubahe exidi sesu ogar, ete oko xanxwi hu da sen imanuneniblemo sefide. Juni rubahe, hu da le nilwatu oko taluji, fori vole na yuxi fe to. Ete tyao, goyu, gulun. Taluji sen yukwe ji amusane.
+Bardi-mosem ata. Fe soba, denwatu hu rubahe exidi sesu ogar, ete oko xanxwi hu da sen imanuneniblemo sefide. Juni rubahe, hu da le nilwatu oko taluji, fori vole na yuxi fe to. Ete tyao, goyu, gulun. Taluji sen yukwe ji amusane.
 
 Hin juni rubahe vole pia na oko ku taluji le alogi etesu jowey kemaner. Lildrevo ji daypetra, bax talujili cengu, no haji sen aloyagiible. Pia perya de hosu no haji sen okoible. Moyto sen sefide, sefidemo safe, har safeya sim sol kom dento de safe rubahe.
 
 Plu rubahe le yuxi fe exya dur total din. Noce xoru, ji atre voka juni rubahe. Moyte ruata, minus safe rubahe. Te le godomo teli kentan. Te no haji rukone ku te ata of keloka. Te sen sonxido. Moy alo rubahe xerca te, mas kos sefide safeya de tesu tofalari, ete no sukses.
 
-Totalmo luminkal. Safe rubahe fe nunya sol ore plu kaospul rusoti. Haulsa tayti rubahesa. Te befobi. Tesu unyum somno ex ogar xa sen fobipulmo bardipul. Rubahe sangu ji bolcu fe comen de daypetra. Fe onxala, tesu ewrekanenibleya pia xa funsyon anti rubaheyamfil haul.
+Totalmo luminkal. Safe rubahe fe nunya sol ore plu kaospul rusoti. Haulsa tayti rubahesa. Te fobi. Tesu unyum somno ex ogar xa sen fobipulmo bardipul. Rubahe sangu se ji bolcu fe comen de daypetra. Fe onxala, tesu ewrekanenibleya pia xa funsyon anti rubaheyamfil haul.
 
 Fe fini, soba. Haul sen sotikal. Safe rubahe musi na bonyongu kurto luminpul watu cel na riewreka sesu famil. Fe asif, le hay hata max taluji dur noce, ji fe folo, he ban pedamarka sen koberido. Rubahe haja idey... ji te ewreka!
 
@@ -42,7 +42,7 @@ Ban din, hay bofun. Multi bala vento pasidi wadi. Planta tongo fleksi fol ventol
 
 Gao drevo peti sahay: "Am sahay mi! Mi fikir ki mi nerxali sokutu!" Alo planta, hu da no real abil na sahay, loga: "Am posxunjan! Am posxunjan!" Mas posxunjan no sen ible. Fe fini, drevo sokutu.
 
-Xafe bofun, Sola ruata. Moy planta abil na oko kano de gao drevo hu da nun total leta per geo. Te morcu, ji tesu dahun ji bija awfley. Bannumer planta morcu kos sokutu, mas minimum fe nunya, dom sen totalmo koberido yon lumin.
+Xafe bofun, Sola ruata. Moy planta abil na oko kanu de gao drevo hu da nun total leta per geo. Te morcu, ji tesu dahun ji bija awfley. Bannumer planta morcu kos sokutu, mas minimum fe nunya, dom sen totalmo koberido yon lumin.
 
 ### Arteyen
 
@@ -220,7 +220,7 @@ Sadafakal solo-krabe paniko. Solo-krabe haja bala dalutul cel na gardi sesu daif
 
 Te fikir: "Kwasi, mi no haji hare alo opsyon." Ji sadafakal solo-krabe inidi jali plastikoli botela. Botela no sen konfortane. Botela pia sen daymo xorjuiible.
 
-Te fikir: "Ible, eger mi sangu intre awjetixey, ren xa no xorjui mi."
+Te fikir: "Ible, eger mi sangu se intre awjetixey, ren xa no xorjui mi."
 
 ### Protesta de axolotle
 
@@ -276,7 +276,7 @@ Moy alo piu no suki hin idey. Ete loga ki na fley dur lungo watu sen godomo kati
 
 "Imi abil na ogar per sui! Imisu ovo ger abil na sen per flotane kyota!"
 
-Bannumer piu suki hin idey, mas maxoriya no suki to. He ban kayvutu abil na sangu in daybahari.
+Bannumer piu suki hin idey, mas maxoriya no suki to. He ban kayvutu abil na sangu se in daybahari.
 
 "Godomo hataripul!"
 
@@ -459,4 +459,3 @@ Remora: "Am nun ofplasi rinjon. Misu koda guton!"
 Mahi-bujoyen: "No, yu no haji preporta tas mi kufi baharili hewan.
 
 Remora fikir: "Mahi-bujoyen le cipen mi. Te le loga ki un hewan xa sen kufi. Na swikara kontrata de nenbekoneyen le no sen bon idey!"
-

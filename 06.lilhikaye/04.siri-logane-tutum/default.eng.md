@@ -2,10 +2,10 @@
 title: 'The Tell-Tale Heart, by Edgar Allan Poe'
 date: '18:18 04-03-2025'
 published: true
-media_order: Siri-Logane%20Tutum.pdf
+media_order: 'Siri-Logane%20Tutum.pdf,Siri-Logane Tutum fal Edgar Allan Poe_Cormorant Upright_medium_28.pdf'
 ---
 
-### [Siri-Logane Tutum](Siri-Logane%2520Tutum.pdf)
+### [Siri-Logane Tutum](Siri-Logane%20Tutum%20fal%20Edgar%20Allan%20Poe_Cormorant%20Upright_medium_28.pdf)
 
 To sen sati! Mi le sen daymo, daymo ansyapul, ji mi haji sen denpul, mas yu fikir ki mi sen majnuni keseba? Misu bimarya le balagi misu ganci-kowa. To le no destrui or daifugi oto. Misu maxim bala ganci-kowa le sen misu oreya. Mi le abil na ore moyto in Janatu ji in Dunya. Mi le ore multi xey in Jahanom. Finto, mi sen majnuni kemaner? Am jui-ore, ji am jui ku mi abil na kemo trankwilo ji mingu loga tas yu total hikaye.
 
@@ -31,7 +31,7 @@ Mas fe hataya fe dento, mi le esto-woju mi ji le resta harkakal. Mi le eskaso na
 
 Eger yu haji fikir ki mi sen majnuni, yu xa no haji fikir dento denwatu hu mi xa tosifu gomyo xey hu mi le fale da cel na sangu jismu. Durki noce le pasa, mi le ergo velosi mas sotikal.
 
-Mi le ofplasi tiga tahta of dixan de kamer ji le plasi moyto in neo bukaxey. Jaxali, mi le ruplasi tahta daydenmo gomyo, fe folo ki nil insanli oko, no hata tesu to, ger abil na xorjui mal banto. Le hay nilto na safegi. Nil burtyan, nil damu-plax. Mi le sen godomo juipul tas dento.
+Mi le ofplasi tiga tahta of dixan de kamer ji le plasi moyto in neo bukaxey. Jaxali, mi le ruplasi tahta daydenmo gomyo, ki fe folo nil insanli oko, no hata tesu to, ger abil na xorjui mal banto. Le hay nilto na safegi. Nil burtyan, nil damu-plax. Mi le sen godomo juipul tas dento.
 
 Xaki mi le fini misu ergo, to le sen satu care, haji denmo luminkal kom midi-noce. Denwatu hu satu le rinjon, le hay toka per dwer fe fronta. Mi le joxupul idi cel na buka to, koski mi le hare keto na befobi fe nunya? Tiga manixu le inidi, hu da adabupul xorkonegi se denpul kom polisiyen. Ayay le beore jara dur noce hu da maxgi fikir ki bur banto le befale; informe le begibe tas polisidom, ji polisiyen le beirsal cel na ofxerca zona.
 

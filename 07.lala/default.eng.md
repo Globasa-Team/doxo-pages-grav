@@ -47,8 +47,8 @@ Ke-ke-ke-keseba na no ~~bonoko~~ juioko Sola ~~daw~~ pas barix? x 2
 <iframe width="280" height="157" src="https://www.youtube.com/embed/IeTybKL1pM4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Dukopi no sen cori.  
-Na cori to resta min un to.  
-Na kopi to resta max un to.  
+Na cori to restagi min un to.  
+Na kopi to restagi max un to.  
 Cele de kopi sen dento. 
 
 Dukopi no sen cori.  
@@ -64,4 +64,4 @@ hay un to tas moyun te.
 Na fale max to,  
 dento name "dukopi".  
 Na dishadya idey intre moyte,  
-Denseba dukopi sen suprem. 
+Denseba dukopi sen suprem.  
