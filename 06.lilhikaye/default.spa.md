@@ -1,7 +1,7 @@
 ---
-title: 'Cuentos cortos'
+title: Kurto-Hikaye
 ---
 
-* [Otros cuentos](alo-hikaye)
 * [Cuentos de Vanege](hikaye-fal-vanege)
-* [El corazón delator de Edgar Allan Poe](siri-logane-tutum)
+* [El corazón delator, de Edgar Allan Poe](siri-logane-tutum)
+* [Otros cuentos](alo-hikaye)

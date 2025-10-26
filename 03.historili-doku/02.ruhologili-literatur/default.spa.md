@@ -1,12 +1,10 @@
 ---
-title: 'Literatura espiritual'
+title: 'Ruhologili Literatur'
 taxonomy:
     category:
         - Other
 media_order: 'kido cel xanti.mp3,towa babel 01.mp3,towa babel 02.mp3,towa babel 03.mp3,towa babel 04.mp3,towa babel 05.mp3,towa babel 06.mp3,salom maria.mp3,imisu patre.mp3'
 ---
-
-# Ruhologili Literatur
 
 ### Imisu Patre
 

@@ -1,5 +1,5 @@
 ---
-title: 'Cuentos populares'
+title: 'Folklorli Hikaye'
 taxonomy:
     category:
         - 'Folk Tales'

@@ -1,12 +1,10 @@
 ---
-title: Jokes
+title: Humorxey
 taxonomy:
     category:
         - Other
 media_order: 'am no befobi.mp3'
 ---
-
-# Humorxey
 
 ### Am no Fobi
 

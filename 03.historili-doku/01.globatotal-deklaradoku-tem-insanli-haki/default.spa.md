@@ -1,12 +1,10 @@
 ---
-title: 'Declaración Universal de Derechos Humanos'
+title: 'Globatotal Deklaradoku tem Insanli Haki'
 taxonomy:
     category:
         - Other
 media_order: 'gdih lefelexi 01.mp3,gdih lefelexi 02.mp3,gdih lefelexi 03.mp3,gdih lefelexi 04.mp3,gdih lefelexi 05.mp3,gdih lefelexi 06.mp3,gdih lefelexi 07.mp3,gdih lefelexi 08.mp3,gdih mon 01.mp3,gdih mon 02.mp3,gdih mon 03.mp3,gdih mon 04.mp3,gdih mon 05.mp3,gdih mon 06.mp3,gdih mon 07.mp3,gdih mon 08.mp3,gdih mon 09.mp3,gdih mon 10.mp3,gdih mon 11.mp3,gdih mon 12.mp3,gdih mon 13.mp3,gdih mon 14.mp3,gdih mon 15.mp3,gdih mon 16.mp3,gdih mon 17.mp3,gdih mon 18.mp3,gdih mon 19.mp3,gdih mon 20.mp3,gdih mon 21.mp3,gdih mon 22.mp3,gdih mon 23.mp3,gdih mon 24.mp3,gdih mon 25.mp3,gdih mon 26.mp3,gdih mon 27.mp3,gdih mon 28.mp3,gdih mon 29.mp3,gdih mon 30.mp3'
 ---
-
-# Globatotal Deklaradoku tem Insanli Haki
 
  <audio controls>
  <source preload="none" src="/historili-doku/globatotal-deklaradoku-tem-insanli-haki/gdih lefelexi 01.mp3" type="audio/mp3" />

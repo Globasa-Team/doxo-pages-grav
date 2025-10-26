@@ -1,12 +1,10 @@
 ---
-title: 'Other Stories'
+title: 'Alo Hikaye'
 taxonomy:
     category:
         - Other
 media_order: 'fruta 01.mp3,fruta 02.mp3'
 ---
-
-# Alo Hikaye
 
 ### Termodo or Nentermodo Fruta
 

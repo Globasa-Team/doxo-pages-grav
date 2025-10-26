@@ -1,9 +1,7 @@
 ---
-title: 'Otros cuentos populares'
+title: 'Alo Folklorli Hikaye'
 media_order: 'kastilo 01.mp3,kastilo 02.mp3,kastilo 03.mp3,kastilo 04.mp3,kastilo 05.mp3,kastilo 06.mp3,kastilo 07.mp3,kastilo 08.mp3,kastilo 09.mp3,kastilo 10.mp3,kastilo 11.mp3,kastilo 12.mp3'
 ---
-
-# Alo Folklorli Hikaye
 
 ### Kastilo Cucurumbel
 

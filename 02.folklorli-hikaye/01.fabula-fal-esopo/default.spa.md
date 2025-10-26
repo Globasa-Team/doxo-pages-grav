@@ -1,11 +1,9 @@
 ---
-title: 'Fábulas de Esopo'
+title: 'Fabula fal Esopo'
 taxonomy:
     category:
         - 'Folk Tales'
 ---
-
-# Fabula fal Esopo
 
 ### Utara-vento ji Sola
     
@@ -25,7 +23,7 @@ Banwatu, rubahe oko kraw na awfley har bage fe jubin in sesu conce, ji na esto p
 
 ### Kargux ji Kroa
 
-Plu kargux denmo multi bebohay plu alo hewan, ki fe folo denete no jixi ku na idi cel keloka. Fori xaki ete oko un solo hewan na nercu cel ete, ete awpawbu. Ban din, ete oko yesen umalari hu da daypawbu fe jowey, ji fe real paniko, moy kargux awajela cel ner hosu, kararpul na garaku fe tayti fe na jiwa in denmo fobipul dujotay. Mas preciso momento hu ete nercu cel byen de hosu, kroalari, fobido fe turno fal nercu de kargux, awajela ji tyao cel in sui. Un te of kargux loga,“Sati, imisu halulari no sen denmo bur kom to kwasisen: moywatu hay bante in maxmo bur halulari kom yu.”
+Plu kargux denmo multi bebohay plu alo hewan, ki fe folo denete no jixi ku na idi cel keloka. Fori xaki ete oko un solo hewan na nercu cel ete, ete awpawbu. Ban din, ete oko yesen umalari hu da daypawbu fe jowey, ji fe real paniko, moy kargux awajela cel ner hosu, kararpul na garaku fe tayti fe na jiwa in denmo fobipul dujotay. Mas preciso momento feki ete nercu cel byen de hosu, kroalari, fobido fe turno fal nercu de kargux, awajela ji tyao cel in sui. Un te of kargux loga,“Sati, imisu halulari no sen denmo bur kom to kwasisen: moywatu hay bante in maxmo bur halulari kom yu.”
 
 ### Baru ji Dua Daoyen
 

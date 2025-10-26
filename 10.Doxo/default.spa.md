@@ -9,6 +9,7 @@ Practique su lectura y comprensión en Globasa:
 * [Cuentos populares](/folklorli-hikaye)
 * [Documentos históricos](/historili-doku)
 * [Chistes](/humorxey)
+* [Citas](/inyo)
 * [Cuentos cortos](/lilhikaye)
 * [Canciones](/lala)
-* [Citas](/inyo)
+

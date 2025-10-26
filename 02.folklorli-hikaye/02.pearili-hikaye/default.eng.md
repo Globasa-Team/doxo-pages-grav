@@ -1,9 +1,7 @@
 ---
-title: 'Fairy Tales'
+title: 'Hikaye fe Peari'
 media_order: 'dahabutofa 01.mp3,dahabutofa 02.mp3,dahabutofa 03.mp3'
 ---
-
-# Pearili Hikaye
 
 ### Dahabu-tofa ji Tiga Baru
 

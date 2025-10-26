@@ -9,6 +9,7 @@ Practice your Globasa reading and comprehension:
 * [Folktales](/folklorli-hikaye)
 * [Historic Documents](/historili-doku)
 * [Jokes](/humorxey)
+* [Quotes](/inyo)
 * [Short Stories](/lilhikaye)
 * [Songs](/lala)
-* [Quotes](/inyo)
+

@@ -1,7 +1,7 @@
 ---
-title: 'Short Stories'
+title: Kurto-Hikaye
 ---
 
-* [Other Stories](alo-hikaye)
 * [Stories by Vanege](hikaye-fal-vanege)
-* [The Tell-Tale Heart by Edgar Allan Poe](siri-logane-tutum)
+* [The Tell-Tale Heart, by Edgar Allan Poe](siri-logane-tutum)
+* [Other Stories](alo-hikaye)
