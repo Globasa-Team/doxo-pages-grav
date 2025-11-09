@@ -32,4 +32,3 @@ Mas fe hataya ki moy hinto sen real fayda of na eskri jandan, nilto of oto sen s
 Mimbay, hay mara hu denwatu ren vole na yongu fukuza jumle or dekorapul lexi cel efeto. Mas ren ingay na nilwatu fale to nyatukal.
 
 Alo seba feki misu eskri fe fini sen jandan sen to hu denmaner mi fale to. Mi velosi eskri unyum xoreskrixey, ji jaxali, mi yongu plu din na penci to, fe na xidu na kosa ki moyto am sen precisomo sahi. Multi to of hin dupenci sen na awjeti, ji dento kosa ki jandan eskri sencu hata maxmo jandan.
-
