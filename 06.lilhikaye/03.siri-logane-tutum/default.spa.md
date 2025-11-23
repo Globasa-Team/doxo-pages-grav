@@ -4,8 +4,6 @@ date: '18:18 04-03-2025'
 published: true
 ---
 
-### [Siri-Logane Tutum](Siri-Logane%2520Tutum.pdf)
-
 To sen sati! Mi le sen daymo, daymo ansyapul, ji mi haji sen denpul, mas yu fikir ki mi sen majnuni keseba? Misu bimarya le balagi misu ganci-kowa. To le no destrui or daifugi oto. Misu maxim bala ganci-kowa le sen misu oreya. Mi le abil na ore moyto in Janatu ji in Dunya. Mi le ore multi xey in Jahanom. Finto, mi sen majnuni kemaner? Am jui-ore, ji am jui ku mi abil na kemo trankwilo ji mingu loga tas yu total hikaye.
 
 Mi no jixi ku idey le ofata keloka, mas denwatu hu to le precu, to le kostante lawfen mi. Le no hay seba kos to. Le no hay bala ganjon tem to. Fe fato, mi le suki lao manixu. Te le nilwatu guton mi. Te le nilwatu burganjongi mi. Mi le no vole tesu pesa. Mi fikir ki seba le sen tesu oko! Si, dento le sen seba! Un to of tesu oko okocu sim kom to de nasru, sefidemo blue oko har dambo cengu per to. Denwatu hu to le oko mi, mi le ganjoncu fobido, ji mi le karar xosu xafe xosu na morgi lao manixu cel na awgi tesu oko cel moywatu.

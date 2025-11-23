@@ -10,11 +10,11 @@ media_order: 'gdih lefelexi 01.mp3,gdih lefelexi 02.mp3,gdih lefelexi 03.mp3,gdi
 
 Fe folo ki swikara fe benjili sungen ji fe egal ji awcudunenible haki de moy membro de insanli famil sen basi de huruya, adilya ji xanti in globa,
 
-Fe folo ki posjui ji posjacigi fe insanli haki le resulta daybawlupul fale hu da bala cufam yoxin de insanlari, ji fe folo ki realcu de globa hu in da insan xa befuraha huruya fe vyata ji fe imanu ji pia huruya of fobi ji of haja le begongaw denpul kom maxim gao cele de ordinari insan, 
+Fe folo ki posjui ji posjacigi fe insanli haki le resulta daybawlupul fale hu da bala cufam yoxin de insanlari, ji fe folo ki realcu de globa hu in da insan xa hoxhare huruya fe vyata ji fe imanu ji pia huruya of fobi ji of haja le begongaw denpul kom maxim gao cele de ordinari insan, 
 
 Fe folo ki to sen daymuhim, eger insan am no bemusigi, denpul kom finili seleti, na panlan anti bawlukrasi ji infragi, ki insanli haki am begardi yon lega,
 
-Fe folo ki to sen daymuhim, na frongi evolu fe dostefil gwanxi intre nasyon,
+Fe folo ki to sen daymuhim, na frongi evolugi fe dostefil gwanxi intre nasyon,
 
 Fe folo ki demo de Uncudo Nasyonlari le rideklara in reguladoku sesu bala imanu fe basili insanli haki, fe sungen ji layeya de insanli personya ji fe egal haki de moy femyen ji manyen, ji pia le daykarar na frongi sosyal fronkadam ji maxmo bon jiwali jotay in maxmo day huruya,
 
@@ -22,7 +22,7 @@ Fe folo ki Membroli Dexa le sohovada na dadal, in tonaksyon ton Uncudo Nasyonlar
 
 Fe folo ki komun aham tem hin haki ji huruya sen maxim muhim cel pul realgi fe hin vada,
     
-Fe folo, fe nunya, Umumi Tonatatim gongaw hin Globatotal Deklara tem Insanli Haki denpul kom komun cele fe dadal tas moy demo ji moy nasyon, celki moy person ji moy organo de sosyaltim, fe na kostante jui hin deklara, yon alim ji eskolya, juhudi na frongi ehtiram fe hin haki ji huruya, ji yon darajeli kadam, nasyonli ji intrenasyonli oto, na yakingi otosu moyli ji fatoli swikara ji folo, egal intre demo de Membroli Dexa, kom intre demo de teritori bax otosu jurisdiksi.
+Fe folo, fe nunya, Umumi Tonatatim gongaw hin Globatotal Deklara tem Insanli Haki denpul kom komun cele fe dadal tas moy demo ji moy nasyon, celki moy person ji moy organo de sosyaltim, fe na kostante jui hin deklara, yon alim ji eskolya, juhudi na frongi ehtiram fe hin haki ji huruya, ji yon darajeli kadam, nasyonli ji intrenasyonli oto, na yakingi otosu moyli ji fatoli swikara ji folo, egal intre demo de Membroli Dexa kom intre demo de teritori bax otosu jurisdiksi.
 
 ### Mon 1.
 
@@ -30,7 +30,7 @@ Moy insan xencu huru ji egal fe sungen ji haki. Ete hare rasona ji yoxin, ji ete
 
 ### Mon 2.
 
-Moy haki ji huruya hu da bedingya in hin deklara deya moy insan, nenhar he banpul aloyagi, kama fol rasa, pifuli kolor, jensi, basa, dini, politili or alo ijen, nasyonli or sosyal asel, kam ekonomili, xenculi or alo jotay.
+Moy haki ji huruya hu da bedingya in hin deklara deya moy insan, wal he banpul aloyagi, kama fol rasa, pifuli kolor, jensi, basa, dini, politili or alo ijen, nasyonli or sosyal asel, kam ekonomili, xenculi or alo jotay.
         
 Maxpul, nil aloyagi am befale fe basi de politili, jurisdiksili or intrenasyonli daraje de dexa or teritori hu den person deya da, kama to sen ikawkal, bax jawgutimya, nensekrasine, kam bax he alo limitexey fe soberenya.
 
@@ -52,7 +52,7 @@ Moyte haki na beswikara denpul kom person fe oko de lega moyloka.
 
 ### Mon 7.
 
-Moyte sen egal fe oko de lega, ji moyte haki, nenhar diskrimina, egal legali gardi. Moyte haki egal gardi anti he ban diskrimina hu da posfolo hin deklara, ji anti he ban provoka cel denpul diskrimina.
+Moyte sen egal fe oko de lega, ji moyte haki, wal diskrimina, egal legali gardi. Moyte haki egal gardi anti he ban diskrimina hu da posfolo hin deklara, ji anti he ban provoka cel denpul diskrimina.
 
 ### Mon 8.
 
@@ -68,7 +68,7 @@ Moyte haki, har pul egalya, adil ji demoli saypan fal ikawkal ji tarafkal hukimu
 
 ### Mon 11.
 
-(1) Moyte itehamdo kos sezaible krimen haki na bejadin yozaykal finfe na bejenmin yozaypul fol lega in demoli saypan, hu in da te le taslum moy garanti hajado cel sesu bawe.
+(1) Moyte itehamdo kos sezaible krimen haki na bejadin yozaykal finfe na bejenmin yozaypul fol lega in demoli saypan, hu in da te le taslum moy garanti behajane cel sesu bawe.
 
 (2) Nilte am bejadin yozaypul fe he ban sezaible krimen kos fale or nenfale hu da le no monkrea sezaible krimen, fol nasyonli or intrenasyonli lega, denwatu hu to le beokurgi. Maxmo bala seza am pia no begibe kom dento hu da le sen aplikaible denwatu hu sezaible krimen le beokurgi.
 
@@ -96,9 +96,9 @@ Nilte am suferi sebakal ganxopu fe sesu privatoya, famil, ogar or posta, nor ata
 
 ### Mon 16.
 
-(1) Moy ixu, nenhar he ban limitexey kos rasa, nasyonya or dini, haki na gamicu ji xoru famil. Ete hare egal haki fe gamicu, dur gamiya ji fe posgamicu.
+(1) Moy ixu, wal he ban limitexey kos rasa, nasyonya or dini, haki na gamicu ji xoru famil. Ete hare egal haki fe gamicu, dur gamiya ji fe posgamicu.
 
-(2) Gamicu am okur sol fol huru ji pul dongwi de nyatune gamiduayen.
+(2) Gamicu am okur sol fol huru ji pul dongwi de nyatune gami-duayen.
 
 (3) Famil sen naturali ji basili grupoli unxey de sosyaltim, ji te haki na taslum gardi fal sosyaltim ji dexa.
 
@@ -114,7 +114,7 @@ Moyte haki huruya fe fikir, yoxin ji dini; hin haki inkludi huruya na alogi sesu
 
 ### Mon 19.
 
-Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen nenhar ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji nenhar kolyo tem dexa-byen.
+Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji wal kolyo tem dexa-byen.
 
 ### Mon 20.
 
@@ -128,19 +128,19 @@ Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen nenhar 
 
 (2) Moyte haki egal celidi fe demoli servi in sesu dexa.
 
-(3) Vole de demo am sen basi de awtorita de krasitim; hin vole am bevyata yon watumonli ji awtenti tupyoli seleti hu da am okur yon moyli ji egal tupyoli haki, ji yon sirili tupyo or egaljacipul proceso fe huru tupyo.
+(3) Vole de demo am sen basi de awtorita de krasitim; hin vole am bevyata yon watumonli ji awtenti tupyoli seleti hu da am okur yon moyli ji egal tupyoli haki, ji yon sirili tupyo or jaciegal proceso fe huru tupyo.
 
 ### Mon 22.
 
-Moyte, kom membro de sosyaltim, haki sosyal anjenya ji, yon nasyonli juhudi ji intrenasyonli tonaksyon ji fe dongwi ton organisa ji resurso de moy nasyon, moyte haki pia realgi fe den ekonomili, sosyal ji kulturali haki beharemusi cel tesu sungen ji cel huru evolu fe tesu personya.
+Moyte, kom membro de sosyaltim, haki sosyal anjenya ji, yon nasyonli juhudi ji intrenasyonli tonaksyon ji fe dongwi ton organisa ji resurso de moy nasyon, moyte haki pia realgi fe den ekonomili, sosyal ji kulturali haki harebisu cel tesu sungen ji cel huru evolu fe tesu personya.
 
 ### Mon 23.
 
 (1) Moyte haki ergo, huru seleti fe sesu ergoxey, adil ji propul ergoli halu ji pia gardi anti ergokalya.
 
-(2) Moyte, nenhar he ban diskrimina, haki egal paya por egal ergo.
+(2) Moyte, wal he ban diskrimina, haki egal paya por egal ergo.
 
-(3) Moyte hu da ergo haki adil ji propul bocan hu da am yakingi, tas seli te ji tesu famil, sonzay laye fe insanli sungen, ji bucundo, fol haja, fal alo resurso fe sosyal gardi.
+(3) Moyte hu da ergo, haki adil ji propul bocan hu da am yakingi, tas he te ji tesu famil, sonzay laye fe insanli sungen, ji bucundo, fol haja, fal alo resurso fe sosyal gardi.
 
 (4) Moyte haki na organisa ji na membrocu in ergoli asosyatim cel na gardi sesu muhimxey.
 
@@ -150,15 +150,15 @@ Moyte haki rahatu ji huru watu, fe inkludi fe rasonapul limitexey fe ergoli satu
 
 ### Mon 25.
 
-(1) Moyte haki jiwali jotay kufi cel sehaya ji bonjotay de seli te ji de tesu famil, fe inkludi fe engyan, labas, ogardom, medisli jawgu ji hajado sosyal servi. Moyte haki pia anjenya fe okur fe ergokalya, bimarya, nenabilya, gwafuya, laoya or alo sonxi fe jiwali resurso kos halu ex sesu kowa.
+(1) Moyte haki jiwali jotay kufi cel sehaya ji bonjotay de he te ji de tesu famil, fe inkludi fe engyan, labas, ogardom, medisli jawgu ji behajane sosyal servi. Moyte haki pia anjenya fe okur fe ergokalya, bimarya, nenabilya, gwafuya, laoya or alo sonxi fe jiwali resurso kos halu ex sesu kowa.
 
 (2) Matreya ji niniya hakigi espesyal jawgu ji sahay. Moy nini, kama ete xencu in kam ex gamiya, am taslum sama sosyal gardi.
 
 ### Mon 26.
 
-(1) Moyte haki eskolya. Eskolya am sen kimakal, minimum fe genoli ji basili fase. Genoli eskolya am sen okurmusi. Teknikali ji profesili eskolya am sen umumimo hareible, ji maxmo gao eskolya am sen egalmo hareible tas moyte fol layeya.
+(1) Moyte haki eskolya. Eskolya am sen kimakal, minimum fe genuli ji basili fase. Genuli eskolya am sen okurmusi. Teknikali ji profesili eskolya am sen umumimo hareible, ji maxmo supra eskolya am sen egalmo hareible tas moyte fol layeya.
 
-(2) Eskolya am cele na pul evolu fe insanli personya ji na balagi ehtiram fe insanli haki ji basili huruya. To am xunjan aham, tahamul ji dosteya intre moy nasyon, rasali ji dinili grupo, ji am frongi aksyon fal Uncudo Nasyonlari pro hifazi fe xanti.
+(2) Eskolya am cele na pul evolugi fe insanli personya ji na balagi ehtiram fe insanli haki ji basili huruya. To am xunjan aham, tahamul ji dosteya intre moy nasyon, rasali ji dinili grupo, ji am frongi aksyon fal Uncudo Nasyonlari pro hifazi fe xanti.
 
 (3) Atre haki fe unyum turno na seleti tipo fe eskolya hu da am begibe tas tesu bete.
 
@@ -174,12 +174,12 @@ Moyte haki sosyal ji intrenasyonli ordenu hu in da haki ji huruya dingyado in hi
 
 ### Mon 29.
 
-(1) Moyte hare musiya tas komuntim hu sol in da te abil na huru ji pul evolu sesu personya.
+(1) Moyte hare musiya tas komuntim hu sol in da te abil na huru ji pul evolugi sesu personya.
 
-(2) Fe aplika fe sesu haki ji huruya, moyte am bebaxplasi sol fe den limitexey hu da legali beestabli sol har cele na yakingi nasibupul swikara ji ehtiram fe haki ji huruya de alote ji na trutigi adil xucyo fe doduku, demoli ordenu ji umumi bonjiwa in demokrasili sosyaltim.
+(2) Fe aplika fe sesu haki ji huruya, moyte am bebaxplasi sol fe den limitexey hu da legali beestabli sol har cele na yakingi nasibupul swikara ji ehtiram fe haki ji huruya de alo ete ji na trutigi adil xucyo fe doduku, demoli ordenu ji umumi bonjiwa in demokrasili sosyaltim.
 
 (3) Hin plu haki ji huruya abil fe nil kaso na beaplika antipul fe cele ji principi de Uncudo Nasyonlari.
 
 ### Mon 30.
 
-Nilto in hin deklara am betafasir denpul kom anxi hu he ban nasyon, grupo or person hare he ban haki na rol fe he ban aksyonya or na okurgi he ban fale hu da cele na destrui he banto of haki ji huruya dingyado in hinto.
+Nilto in hin deklara am betafasir denpul kom anxi feki he ban nasyon, grupo or person hare he ban haki na rol fe he ban aksyonya or na okurgi he ban fale hu da cele na destrui he banto of haki ji huruya dingyado in hinto.

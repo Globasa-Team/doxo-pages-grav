@@ -88,7 +88,7 @@ Dragon ganjon ki te haji wala xey, ji ki jali xaher no haji sen interesne. Kos t
 
 Xafe lungo fley, fe fini, dragon ewreka xaher. To sen nenpimpan xaher hu da loka in drevo-geo. Koski moyto sen sangudo bax dahun, dragon karar na pergeocu. Per geo, te oko panda hu da kwasi hare nil fobi kos presen de dragon.
 
-Te swal tas panda: "Kastilo feya keloka?"
+Te swal tas panda: "Kastilo sen keloka?"
 
 Panda jawabu: "Kastilo? No hay kastilo hinloka."
 
@@ -203,7 +203,7 @@ Hay sahel hu denloka multi meli solo-krabe ogar. Moy solo-krabe labas sadafa hu 
 
 Fe moy nyan hay day merasem. Kriban moy solo-krabe idi cel to. To sen merasem fe sadafali porgi. Fol cwenton, moy solo-krabe am gibe sesu sadafa tas solo-krabe hu da sen minmo lao fe un nyan. Denmaner, komuntim riyongu bon sadafa. Pia, solo-krabe suki na jaribi neo baytu.
 
-Mas Okreyen, te no suki. Okreyen le no rol in merasem dur tiga nyan. Te fikir, "Misu sadafa sen perfeto. To sen mon of mi. To sen misu to."
+Mas Okreyen, te no suki. Okreyen le no rol in merasem dur tiga nyan. Te fikir, "Misu sadafa sen perfeto. To sen bage of mi. To sen misu to."
 
 Xafe bannumer mesi, Okreyen kentan baxbaharili jabal. Abruto, Okreyen ewreka mor xarke. To kwasisen xetocubon. Nil maso-yamne hewan sen ner cel na konkure. Denpul kihoy okur sol fe un mara in jiwa de solo-krabe. Okreyen loga, "Daydenkwanti yamxey! Mi xa yam moyto!"
 
