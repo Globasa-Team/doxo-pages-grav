@@ -174,9 +174,9 @@ Bete dayloga: "Dyabol!"
 
 Wazo loga: "Am no loga _dyabol_. Dento sen _dambipul_!"
 
-Denwatu, bete xoru na wawa. Xafe watumon, Wazo aham ki te le sen godomo xucyofil. Cel na peti mafu, te jeni tas sesu bete na tongo idi cel hewandom.
+Denwatu, bete xoru na wawa. Xafe watumon, Wazo aham ki te le sen godomo xucyofil. Cel na peti mafu, te jeni tas sesu bete na tongo idi cel hewan-parke.
 
-Hay multi doyan hewan in hewandom. Wazo real no suki den kolorpul hwanjin hu te ijen da cufampul tas sesu suki. Mas tesu bete kwasisen daymo hox, ji ete bewao moy hewan.
+Hay multi doyan hewan in hewan-parke. Wazo real no suki den kolorpul hwanjin hu te ijen da cufampul tas sesu suki. Mas tesu bete kwasisen daymo hox, ji ete bewao moy hewan.
 
 Famil juioko taco:
 
@@ -193,7 +193,7 @@ Hufax loga: "Am restagi imi trankwilo, laoyen!"
 Bete belawfen xekayefilya de sesu atre. Wazo no esto. Te xekaye. Te sahigi. Te poscosan. Te sen posyukwe.
 
 Folki watu max pasa, xekayefilya de Wazo max hoypospel jui de neryen. Lil grupo fe hewan le toncudu ner fe Wazo.
-Hewanli grupo loga: "O, am oko! Mi le no jixi ki hewandom hare pia fosil!"
+Hewanli grupo loga: "O, am oko! Mi le no jixi ki hewan-parke hare pia fosil!"
 
 Wazo dayloga: "Fekali dyabol!"
 
@@ -291,9 +291,9 @@ Moy alo piu surprisa. Ete no jixi ku na ruaksyon kemaner. Mas hin piu sen xohrap
 
 ### Sahay tas Haul
 
-Haul sencu maxmo ji maxmo nadir. In total dexa, sol bannumer te jula resta. Maymun vole na sahay ete. Maymun krea day kafas. Cel in to, ete inplasi multi drevo ji nahir ji gufa, jmt. Ete karar na namegi hin meli kafas _hewandom_. Maymun fikir ki haul xa sen hox hinloka. Haul xa hare multi xey cel na amusa, ji ete xa no haji sen solo. Ji fe onxala, haul xa hare bebe. Denmaner, max haul xa hay in dexa.
+Haul sencu maxmo ji maxmo nadir. In total dexa, sol bannumer te jula resta. Maymun vole na sahay ete. Maymun krea day kafas. Cel in to, ete inplasi multi drevo ji nahir ji gufa, jmt. Ete karar na namegi hin meli kafas _hewan-parke_. Maymun fikir ki haul xa sen hox hinloka. Haul xa hare multi xey cel na amusa, ji ete xa no haji sen solo. Ji fe onxala, haul xa hare bebe. Denmaner, max haul xa hay in dexa.
 
-Mas fe nunya, maymun haja na ewreka haul, bujo ete, ji inporta ete cel hewandom. Cel to, ete organisa nasyontotal misyon. Multi maymun suki hin projeto, ji ete vole na sahay kom voluntiryen. Ete fikir ki to sen bon tas haul. In kafas, haul xa no abil na xigoli morcu in natura.
+Mas fe nunya, maymun haja na ewreka haul, bujo ete, ji inporta ete cel hewan-parke. Cel to, ete organisa nasyontotal misyon. Multi maymun suki hin projeto, ji ete vole na sahay kom voluntiryen. Ete fikir ki to sen bon tas haul. In kafas, haul xa no abil na xigoli morcu in natura.
 
 Misyon sen suksespul, ji moy lima haul in dexa nun sen in kafas. Jawguyen de kafas velosi xorjui ki multi maymun vole na oko haul. Multi maymun sen jumbi na multi paya cel na oko yesen hewan yon suli oko. Fe folo, multi turiyen ata, ji ton ete, multi maydoyen ata, hu da le ewreka interesne mamba fe klientelari.
 
