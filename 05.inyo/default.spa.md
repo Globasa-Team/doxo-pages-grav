@@ -2,6 +2,7 @@
 title: Inyo
 date: '22:04 14-04-2021'
 media_order: 'Gandhi.mp3,Marley.mp3,FDR.mp3,George_Harrison.mp3,Hermes_Trismegistus.mp3,Nelson_Mandela.mp3,Hermes01.mp3,FDR01.mp3,GHarrison01.mp3,Mandela01.mp3,Marley01.mp3'
+published: false
 ---
 
 > **Denwatu hu yu oko ultra yu, denwatu yu ible xoraham ki xanti fe siko intizar denloka.**     
