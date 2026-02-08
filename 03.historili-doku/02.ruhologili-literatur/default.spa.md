@@ -38,11 +38,11 @@ Amen
 
 ### Towa de Babel
 
-Per total Dunya hay un basa ji un pala. Durki ete dao hoy dongu, ete ewreka pangu-geo in dexa Xinar, ji ete xorogar denloka.
+Per total Dunya hay un basa ji un pala. Durki ete dao hoy dongu, ete ewreka pangugeo in dexa Xinar, ji ete xorogar denloka.
 
 Ete soho loga tas se, “Am ata, imi am fale ituka, ji imi atex oto finfe na sen jumbi.” Ete hare ituka fe tayti fe petra, ji ete yongu taru fe tayti fe milatu.
 
-Jaxali, ete loga, “Am ata, imi am kostrui tas imi xaher, har towa hu dasu kapi dadal asman, celki imi am supraidi cel xohra; fe alo kaso, imi xa discu cel in alo-dexa per total Dunya.”
+Jaxali, ete loga, “Am ata, imi am kostrui tas imi xaher, har towa hu dasu kapi dadal asman, celki imi am supraidi cel xohra; fe alo kaso, imi xa discu cel in alodexa per total Dunya.”
 
 Mas Prabu infraidi cel na oko xaher ji towa hu insan le kostrui da.
 
@@ -90,7 +90,7 @@ Amen
 
 ### Salom Maria
 
-Salom Maria, pul fe teo-lutuf,
+Salom Maria, pul fe teolutuf,
 
 Prabu sen ton yu.
 

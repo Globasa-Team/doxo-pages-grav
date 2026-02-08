@@ -8,7 +8,7 @@ media_order: 'gdih lefelexi 01.mp3,gdih lefelexi 02.mp3,gdih lefelexi 03.mp3,gdi
 
 ### Lefelexi
 
-Fe folo ki swikara fe benjili sungen ji fe egal ji awcudunenible haki de moy membro de insanli famil sen basi de huruya, adilya ji xanti in globa,
+Fe folo ki swikara fe benjili sungen ji fe egal ji awcudu-nenible haki de moy membro de insanli famil sen basi de huruya, adilya ji xanti in globa,
 
 Fe folo ki posjui ji posjacigi fe insanli haki le resulta daybawlupul fale hu da bala cufam yoxin de insanlari, ji fe folo ki realcu de globa hu in da insan xa hoxhare huruya fe vyata ji fe imanu ji pia huruya of fobi ji of haja le begongaw denpul kom maxim gao cele de ordinari insan, 
 
@@ -114,7 +114,7 @@ Moyte haki huruya fe fikir, yoxin ji dini; hin haki inkludi huruya na alogi sesu
 
 ### Mon 19.
 
-Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji wal kolyo tem dexa-byen.
+Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji wal kolyo tem dexabyen.
 
 ### Mon 20.
 

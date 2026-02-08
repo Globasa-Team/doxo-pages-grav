@@ -6,9 +6,9 @@ taxonomy:
 media_order: 'baru ji dua daoyen.mp3,kargux ji kroa.mp3,utaravento ji sola.mp3,singa ji maux.mp3,rubahe ji kraw.mp3'
 ---
 
-### Utara-vento ji Sola
+### Utaravento ji Sola
     
-Utara-vento ji Sola debate ku kete sen maxmo bala, denwatu hu daoyen preata koberido in termopul kapa. Ete sohovada ki dente hu da unyum kosa ki daoyen ofplasi sesu kapa ingay na beganci na sen maxmo bala kom alo te. Denwatu, Utara-vento vento yon sesu total balaya, mas folki te max vento, daoyen maxmo tange koberi se yon kapa; ji fe fini, Utara-vento esto na xidu. Denwatu, Sola termopul xorbrila, ji fori, daoyen ofplasi sesu kapa; ji fe folo, Utara-vento bexucyo na etiraf ki Sola sen maxim bala te of dua te.
+Utaravento ji Sola debate ku kete sen maxmo bala, denwatu hu daoyen preata koberido in termopul kapa. Ete sohovada ki dente hu da unyum kosa ki daoyen ofplasi sesu kapa ingay na beganci na sen maxmo bala kom alo te. Denwatu, Utaravento vento yon sesu total balaya, mas folki te max vento, daoyen maxmo tange koberi se yon kapa; ji fe fini, Utaravento esto na xidu. Denwatu, Sola termopul xorbrila, ji fori, daoyen ofplasi sesu kapa; ji fe folo, Utaravento bexucyo na etiraf ki Sola sen maxim bala te of dua te.
 
 ### Singa ji Maux
 
@@ -29,4 +29,3 @@ Plu kargux denmo multi bebohay plu alo hewan, ki fe folo denete no jixi ku na id
 Dua insan tongo dao pas drevogeo denwatu hu baru abruto precu in etesu dao. Un te of daoyen velosi supraidi cel drevo, ji te sangu se intre xube. Alo te oko ki te xa beatake. Fe folo, te infrajeti se cel geo. Baru ata cel te, ji dente plasi sesu nasa ner fe tesu ore, ji te nasa insan fe totalya. Mas fe fini, baru restagi te, koski nil baru yam mor maso.
 
 Jaxali, alo daoyen infraidi of drevo ji, fe na haha, te swal tas sesu doste ku baru le lilloga keto tas tesu ore. Tonyen jawabu, "Te le gibe tas mi hin nasiha: Am nilwatu xinloy doste hu da awrestagi yu denwatu hu hatari nercu."
-

@@ -1,7 +1,6 @@
 ---
 title: 'Globasa Readings'
 visible: false
-media_order: 'Doxo_Cormorant Upright_Medium.pdf'
 ---
 
 Practice your Globasa reading and comprehension:

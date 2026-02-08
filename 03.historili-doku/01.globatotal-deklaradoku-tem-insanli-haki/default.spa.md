@@ -8,7 +8,7 @@ media_order: 'gdih lefelexi 01.mp3,gdih lefelexi 02.mp3,gdih lefelexi 03.mp3,gdi
 
 ### Lefelexi
 
-Fe folo ki swikara fe benjili sungen ji fe egal ji awcudunenible haki de moy membro de insanli famil sen basi de huruya, adilya ji xanti in globa,
+Fe folo ki swikara fe benjili sungen ji fe egal ji awcudu-nenible haki de moy membro de insanli famil sen basi de huruya, adilya ji xanti in globa,
 
 Fe folo ki posjui ji posjacigi fe insanli haki le resulta daybawlupul fale hu da bala cufam yoxin de insanlari, ji fe folo ki realcu de globa hu in da insan xa hoxhare huruya fe vyata ji fe imanu ji pia huruya of fobi ji of haja le begongaw denpul kom maxim gao cele de ordinari insan, 
 
@@ -18,7 +18,7 @@ Fe folo ki to sen daymuhim, na frongi evolugi fe dostefil gwanxi intre nasyon,
 
 Fe folo ki demo de Uncudo Nasyonlari le rideklara in reguladoku sesu bala imanu fe basili insanli haki, fe sungen ji layeya de insanli personya ji fe egal haki de moy femyen ji manyen, ji pia le daykarar na frongi sosyal fronkadam ji maxmo bon jiwali jotay in maxmo day huruya,
 
-Fe folo ki Membroli Dexa le soho-vada na dadal, in tonaksyon ton Uncudo Nasyonlari, frongi fe moyli ehtiram ji folo fe insanli haki ji basili huruya,
+Fe folo ki Membroli Dexa le sohovada na dadal, in tonaksyon ton Uncudo Nasyonlari, frongi fe moyli ehtiram ji folo fe insanli haki ji basili huruya,
 
 Fe folo ki komun aham tem hin haki ji huruya sen maxim muhim cel pul realgi fe hin vada,
     
@@ -114,7 +114,7 @@ Moyte haki huruya fe fikir, yoxin ji dini; hin haki inkludi huruya na alogi sesu
 
 ### Mon 19.
 
-Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji wal kolyo tem dexa-byen.
+Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal ganxopu fal alote, ji na peti, taslum ji komunika informe ji idey yon he ban medya ji wal kolyo tem dexabyen.
 
 ### Mon 20.
 
@@ -128,7 +128,7 @@ Moyte haki huruya fe ijen ji vyata; hin haki inkludi huruya na hare ijen wal gan
 
 (2) Moyte haki egal celidi fe demoli servi in sesu dexa.
 
-(3) Vole de demo am sen basi de awtorita de krasitim; hin vole am bevyata yon watumonli ji awtenti tupyoli seleti hu da am okur yon moyli ji egal tupyoli haki, ji yon sirili tupyo or jaci-egal proceso fe huru tupyo.
+(3) Vole de demo am sen basi de awtorita de krasitim; hin vole am bevyata yon watumonli ji awtenti tupyoli seleti hu da am okur yon moyli ji egal tupyoli haki, ji yon sirili tupyo or jaciegal proceso fe huru tupyo.
 
 ### Mon 22.
 

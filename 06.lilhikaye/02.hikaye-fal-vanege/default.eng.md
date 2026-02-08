@@ -8,17 +8,17 @@ media_order: 'arteyen 01.mp3,arteyen 02.mp3,arteyen 03.mp3,arteyen 04.mp3,arteye
 
 Hinte sen juni rubahe. Tesu belo sen totalmo sefide kom wadi xafe taze dutaluji. He nil bruno or syahe burtyan sen okoible. In rubahelari, nilto sen maxmo safe kom tesu belo, ji te sen daymo fahuri tem to. Kos dento, te name _Safe Rubahe_.
 
-Bardimosem ata. Fe soba, denwatu hu rubahe exidi sesu ogar, ete oko xanxwi hu da sen imanuneniblemo sefide. Juni rubahe, hu da le nilwatu oko taluji, fori vole na yuxi fe to. Ete tyao, goyu, gulun. Taluji sen yukwe ji amusane.
+Bardimosem ata. Fe soba, denwatu hu rubahe exidi sesu ogar, ete oko xanxwi hu da sen imanu-neniblemo sefide. Juni rubahe, hu da le nilwatu oko taluji, fori vole na yuxi fe to. Ete tyao, goyu, gulun. Taluji sen yukwe ji amusane.
 
 Hin juni rubahe vole pia na oko ku taluji le alogi etesu jowey kemaner. Lildrevo ji daypetra, bax talujili cengu, no haji sen aloyagiible. Pia perya de hosu no haji sen okoible. Moyto sen sefide, sefidemo safe, har safeya sim sol kom dento de safe rubahe.
 
 Plu rubahe le yuxi fe exya dur total din. Noce xoru, ji atre voka juni rubahelari. Moyte ruata, minus safe rubahe. Te le godomo teli kentan. Te no haji rukone ku te ata of keloka. Te sen sonxido. Moy alo rubahe xerca te, mas kos sefide safeya de tesu belo, ete no sukses.
 
-Totalmo luminkal. Safe rubahe fe nunya sol ore plu kaospul rusoti. Haulsa tayti rubahesa. Te fobi. Tesu unyum somno ex ogar xa sen fobipulmo bardipul. Rubahe sangu se ji bolcu fe comen de daypetra. Fe onxala, tesu ewrekanenibleya pia xa funsyon anti rubahe-yamfil haul.
+Totalmo luminkal. Safe rubahe fe nunya sol ore plu kaospul rusoti. Haulsa tayti rubahesa. Te fobi. Tesu unyum somno ex ogar xa sen fobipulmo bardipul. Rubahe sangu se ji bolcu fe comen de daypetra. Fe onxala, tesu ewreka-nenibleya pia xa funsyon anti rubahe-yamfil haul.
 
-Fe fini, soba. Haul sen sotikal. Safe rubahe musi na bonyongu kurto luminpul watu cel na riewreka sesu famil. Fe asif, le hay hata max taluji dur noce, ji kos to, he ban peda-marka sen koberido. Rubahe haja idey... ji te ewreka!
+Fe fini, soba. Haul sen sotikal. Safe rubahe musi na bonyongu kurto luminpul watu cel na riewreka sesu famil. Fe asif, le hay hata max taluji dur noce, ji kos to, he ban pedamarka sen koberido. Rubahe haja idey... ji te ewreka!
 
-Okonenible, yon velosi tyao, safe rubahe sukses na bujo kargux. Yon sesu denta, te kata gardan. Per mor kargux, rubahe gulun, celki tesu belo bekoberi taze, roso damu. Rubahe fikir, "Hinmaner, mi xa sen okoible!"
+Oko-nenible, yon velosi tyao, safe rubahe sukses na bujo kargux. Yon sesu denta, te kata gardan. Per mor kargux, rubahe gulun, celki tesu belo bekoberi taze, roso damu. Rubahe fikir, "Hinmaner, mi xa sen okoible!"
 
 Sipul, xafe watumon, un te of familyen de rubahe xoroko roso figura hu da harka fe teliya. Mas, koski te le nilwatu oko sim banto, ji koski te oko multi damu, familyen xoru na awpawbu ji na dayloga, "Am awpawbu, hay kayvutu!"
 
@@ -30,7 +30,7 @@ Fe hataya, ban din, dayvento preporta bija of teli loka. Xafe watumon, bija kufi
 
 Fe xoru, planta hu da ogar in wadi hoxcu tem hin preata. Folki jowey sen maxmo doyan fe jongu, to max abil na tahamul ji adate fol alocu.
 
-Hin neo drevo xunjan ji xunjan. Mas neo drevo no esto na xunjan lefe limite fe tiga metro. Te multi suki lumin, ji te moywatu vole max to. Te xoru na krea day sistema fe xube ji dahun, cel na bujo max sola-lumin.
+Hin neo drevo xunjan ji xunjan. Mas neo drevo no esto na xunjan lefe limite fe tiga metro. Te multi suki lumin, ji te moywatu vole max to. Te xoru na krea day sistema fe xube ji dahun, cel na bujo max solalumin.
 
 Jali planta loga tas neo drevo: "Fe lutuf, am esto na xunjan, imi no haji taslum kufi lumin." Gao drevo jawabu: "Eger uyu vole lumin, am xunjan. Mi layeya lumin koski mi le xunjan."
 
@@ -46,7 +46,7 @@ Xafe bofun, Sola ruata. Moy planta abil na oko kanu de gao drevo hu da nun total
 
 Hay maymun hu da multi suki na rasamu. Fe moy din, te rasamu plu neo xey. Te suki na rasamu asman, natura, hewan. Te suki na rasamu moyto, ji te suki na rasamu moywatu. Te fikir: "Denwatu hu mi sen day, mi xa sen arteyen. Dento sen misu roya."
 
-Atre de maymun hifazi pesa tas sesu bete. Yon pesa, maymun abil na estudi in xohrapul arte-eskol. In eskol, maymun multi estudi. Te vole na dadal sesu roya, mas te pia no vole na malyongu pesa de sesu atre.
+Atre de maymun hifazi pesa tas sesu bete. Yon pesa, maymun abil na estudi in xohrapul arteeskol. In eskol, maymun multi estudi. Te vole na dadal sesu roya, mas te pia no vole na malyongu pesa de sesu atre.
 
 Maymun pimpan musi na onexa sesu rasamu tas alimyen. Alimyen multi komenta: "Yusu rasamu sen bon, mas kam yu abil na alogi den bage?" Dumara, ete loga ki rasamu haja detale. Dumara, ete loga ki hay godo detale. Dumara, ete loga ki no hay kufi kolor. Dumara, ete loga ki hay godo kolor. Moywatu, ete no sen kufimo truti.
 
@@ -58,7 +58,7 @@ Fe hataya ki maymun sen daymo talentopul, te haja regulapul kliente cel na taslu
 
 Mas ban din, te karar na fale wakufa. Te le sukses na hifazi kufi pesa cel to. Te fikir: "Mi nun abil na rasamu dento hu mi vole da, denmaner hu mi vole! Mi xa rahatu yon na huru rasamu, denmaner hu mi le fale denwatu hu mi le sen daymo juni."
 
-Te side ner fe sefide paper, har pentu-broxa ji inku. Te oko paper. Te xidu na imaje banto. Te oko paper. Te xidu na imaje he banto. Paper resta sefide. Te fale plu linea. Mas nil menapul to precu. Te no sukses na rasamu dur total din. Te le wanji ku kemaner na rasamu yon furaha ji huruya. Na rasamu no haji sen dayfilya, mas sol ergo.
+Te side ner fe sefide paper, har pentubroxa ji inku. Te oko paper. Te xidu na imaje banto. Te oko paper. Te xidu na imaje he banto. Paper resta sefide. Te fale plu linea. Mas nil menapul to precu. Te no sukses na rasamu dur total din. Te le wanji ku kemaner na rasamu yon furaha ji huruya. Na rasamu no haji sen dayfilya, mas sol ergo.
 
 Multi nyan pasa. Maymun nun sen lao. Te ergo in nongyodom hu te le warisa da. Te le no pifu broxa dur lungo watu. Kos jaxne, maymun bevisita sodar ji tesu bete. Un juni bete vole na onexa rasamu fe ajabu hewan tas maymun Tie.
 
@@ -148,9 +148,9 @@ Fe fato, pia visitane piu sen kolor-okobimar!
 
 Wazo sen name de lao piu. Wazo fikir ki denwatu hu te sen juni, moyto le sen perfeto. Moy hewan le sen maxmo ehtiramfil. Moy hewan le hare maxmo bon suki. Fol te, globa le sen bon, mas fe nunya, globa sen bur. Fe fato, Wazo no sen daymo lao, mas tesu ijen sen yakinmo denpul.
 
-Wazo hare dua bete. Ete sen normapul junipiu hu da hare normapul juniyenli suki. Fe ban din, ete peti tas atre izin na idi cel musika-xow.
+Wazo hare dua bete. Ete sen normapul junipiu hu da hare normapul juniyenli suki. Fe ban din, ete peti tas atre izin na idi cel musikaxow.
 
-Bete swal: "Kam imi harizin na idi cel musika-xow de Jonimo?"
+Bete swal: "Kam imi harizin na idi cel musikaxow de Jonimo?"
 
 Wazo swal: "Den Jojo sen kete?"
 
@@ -162,7 +162,7 @@ Bete swal: "Keseba???"
 
 Wazo multi belawfen den behajakal swal. Fol te, jawabu sen mingumo mimbay. Rapuyen wakil bur jiwali maner. Ete populergi dududan, alkohol ji alo burdava. Ete hata loga tem possantoxey!
 
-Mas maxim swikaranenible masele sen ki ete fale antinormadokuli musika. To sen nefralaye ji basabur ki ete presenta lexili dukaku denpul kom arte. Musikali normatim le nilwatu aproba dento. Bete musi na resta teli fe ete. Eger no, ete xa hare bur suki. Kultura xa besonxi, ji sosyaltim xa dissokutu.
+Mas maxim swikara-nenible masele sen ki ete fale antinormadokuli musika. To sen nefralaye ji basabur ki ete presenta lexili dukaku denpul kom arte. Musikali normatim le nilwatu aproba dento. Bete musi na resta teli fe ete. Eger no, ete xa hare bur suki. Kultura xa besonxi, ji sosyaltim xa dissokutu.
 
 Wazo swal: "Kam uyu no abil na ore klasiko musika denmaner hu normapul bete fale?"
 
@@ -174,9 +174,9 @@ Bete dayloga: "Dyabol!"
 
 Wazo loga: "Am no loga _dyabol_. Dento sen _dambipul_!"
 
-Denwatu, bete xoru na wawa. Xafe watumon, Wazo aham ki te le sen godomo xucyofil. Cel na peti mafu, te jeni tas sesu bete na tongo idi cel hewan-parke.
+Denwatu, bete xoru na wawa. Xafe watumon, Wazo aham ki te le sen godomo xucyofil. Cel na peti mafu, te jeni tas sesu bete na tongo idi cel hewanparke.
 
-Hay multi doyan hewan in hewan-parke. Wazo real no suki den kolorpul hwanjin hu te ijen da cufampul tas sesu suki. Mas tesu bete kwasisen daymo hox, ji ete bewao moy hewan.
+Hay multi doyan hewan in hewanparke. Wazo real no suki den kolorpul hwanjin hu te ijen da cufampul tas sesu suki. Mas tesu bete kwasisen daymo hox, ji ete bewao moy hewan.
 
 Famil juioko taco:
 
@@ -193,13 +193,13 @@ Hufax loga: "Am restagi imi trankwilo, laoyen!"
 Bete belawfen xekayefilya de sesu atre. Wazo no esto. Te xekaye. Te sahigi. Te poscosan. Te sen posyukwe.
 
 Folki watu max pasa, xekayefilya de Wazo max hoypospel jui de neryen. Lil grupo fe hewan le toncudu ner fe Wazo.
-Hewanli grupo loga: "O, am oko! Mi le no jixi ki hewan-parke hare pia fosil!"
+Hewanli grupo loga: "O, am oko! Mi le no jixi ki hewanparke hare pia fosil!"
 
 Wazo dayloga: "Fekali dyabol!"
 
 ### Okresim Solokrabe Okreyen
 
-Hay sahel hu denloka multi meli solokrabe ogar. Moy solokrabe labas sadafa hu da ofata mor sadafa-hewan. Bannumer sadafa sen sol sefide, bannumer sadafa sen kolorpul. Un solokrabe hare okresim sadafa. Kos dento, te name Okreyen. Hin sadafa no sen daymo espesyal, mas Okreyen multi suki to.
+Hay sahel hu denloka multi meli solokrabe ogar. Moy solokrabe labas sadafa hu da ofata mor sadafahewan. Bannumer sadafa sen sol sefide, bannumer sadafa sen kolorpul. Un solokrabe hare okresim sadafa. Kos dento, te name Okreyen. Hin sadafa no sen daymo espesyal, mas Okreyen multi suki to.
 
 Fe moy nyan hay day merasem. Kriban moy solokrabe idi cel to. To sen merasem fe sadafali porgi. Fol cwenton, moy solokrabe am gibe sesu sadafa tas solokrabe hu da sen minmo lao fe un nyan. Denmaner, komuntim riyongu bon sadafa. Pia, solokrabe suki na jaribi neo baytu.
 
@@ -239,7 +239,7 @@ Mas maxori axolotle uje no haji glu likwido.
 
 "Imi uje sen baliguyen denmaner hu imi uje sen."
 
-Plu nyan pasa. Hosu hu denloka salamandra jiwa sencu maxmo ji maxmo trasokonenible. Salamandra no jixi ku keseba. Fol multi te, sui nun hare bur nasacu. Na xikar in hosu sencu maxmo ji maxmo katina. 
+Plu nyan pasa. Hosu hu denloka salamandra jiwa sencu maxmo ji maxmo trasoko-nenible. Salamandra no jixi ku keseba. Fol multi te, sui nun hare bur nasacu. Na xikar in hosu sencu maxmo ji maxmo katina. 
 
 Baliguyen loga:
 
@@ -247,7 +247,7 @@ Baliguyen loga:
 
 "Am glu, ji am ata na jiwa ton imi per geo!"
 
-Mas axolotle duregi na posswikara na glu bruno baligugine likwido. Xafe watumon, hosu le sencu totalmo trasokonenible. Alo salamandra no jixi kama axolotle haji jiwa in to. Salamandra awanda. Sui de hosu no haji sen laye cel etesu bebe.
+Mas axolotle duregi na posswikara na glu bruno baligugine likwido. Xafe watumon, hosu le sencu totalmo trasoko-nenible. Alo salamandra no jixi kama axolotle haji jiwa in to. Salamandra awanda. Sui de hosu no haji sen laye cel etesu bebe.
 
 "Tas ete hu da posswikara na folo dini imi xa pala tem lanetudo axolotle."
 
@@ -257,9 +257,9 @@ Axolotle swal tas se ku keto le okur tas alo salamandra.
 
 ### Mitin de Piu
 
-Sui-daraje sen maxmo ji maxmo gao, ji to no esto na maxgaocu. Nerxali, sui xa koberi moy bage de Dunya. Nerxali, moy piu xa no haji hare loka cel na pergeocu. Cel na bloki morcu de moy piu, xohrapul piu organisa day mitin. Xohrapul piu salom moy piu hu da rol in mitin.
+Suidaraje sen maxmo ji maxmo gao, ji to no esto na maxgaocu. Nerxali, sui xa koberi moy bage de Dunya. Nerxali, moy piu xa no haji hare loka cel na pergeocu. Cel na bloki morcu de moy piu, xohrapul piu organisa day mitin. Xohrapul piu salom moy piu hu da rol in mitin.
 
-"Bonata. Imi sen hinloka cel na ewreka xaya tas piulari. Imi le ultrajiwa plu daybur okurxey. Imi le ultrajiwa meteor-petra. Imi le ultrajiwa insanlari. Imi xa ultrajiwa fini de geo."
+"Bonata. Imi sen hinloka cel na ewreka xaya tas piulari. Imi le ultrajiwa plu daybur okurxey. Imi le ultrajiwa meteorpetra. Imi le ultrajiwa insanlari. Imi xa ultrajiwa fini de geo."
 
 Xohrapul piu swal:
 
@@ -267,7 +267,7 @@ Xohrapul piu swal:
 
 Barix-ababil nercu ji loga: "Imi ger abil na kostante fley! Imi xa no haji haja geo!"
 
-Moy alo piu no suki hin idey. Ete loga ki na fley dur lungo watu sen godomo katina. Ete loga ki ete haja ogar cel na plasi sesu ovo. Gotas-piu nercu ji loga:
+Moy alo piu no suki hin idey. Ete loga ki na fley dur lungo watu sen godomo katina. Ete loga ki ete haja ogar cel na plasi sesu ovo. Gotaspiu nercu ji loga:
 
 "Imi abil na ogar per sui! Imisu ovo ger abil na sen per flotane kyota!"
 
@@ -291,9 +291,9 @@ Moy alo piu surprisa. Ete no jixi ku na ruaksyon kemaner. Mas hin piu sen xohrap
 
 ### Sahay tas Haul
 
-Haul sencu maxmo ji maxmo nadir. In total dexa, sol bannumer te jula resta. Maymun vole na sahay ete. Maymun krea day kafas. Cel in to, ete inplasi multi drevo ji nahir ji gufa, jmt. Ete karar na namegi hin meli kafas _hewan-parke_. Maymun fikir ki haul xa sen hox hinloka. Haul xa hare multi xey cel na amusa, ji ete xa no haji sen solo. Ji fe onxala, haul xa hare bebe. Denmaner, max haul xa hay in dexa.
+Haul sencu maxmo ji maxmo nadir. In total dexa, sol bannumer te jula resta. Maymun vole na sahay ete. Maymun krea day kafas. Cel in to, ete inplasi multi drevo ji nahir ji gufa, jmt. Ete karar na namegi hin meli kafas _hewanparke_. Maymun fikir ki haul xa sen hox hinloka. Haul xa hare multi xey cel na amusa, ji ete xa no haji sen solo. Ji fe onxala, haul xa hare bebe. Denmaner, max haul xa hay in dexa.
 
-Mas fe nunya, maymun haja na ewreka haul, bujo ete, ji inporta ete cel hewan-parke. Cel to, ete organisa nasyontotal misyon. Multi maymun suki hin projeto, ji ete vole na sahay kom voluntiryen. Ete fikir ki to sen bon tas haul. In kafas, haul xa no abil na xigoli morcu in natura.
+Mas fe nunya, maymun haja na ewreka haul, bujo ete, ji inporta ete cel hewanparke. Cel to, ete organisa nasyontotal misyon. Multi maymun suki hin projeto, ji ete vole na sahay kom voluntiryen. Ete fikir ki to sen bon tas haul. In kafas, haul xa no abil na xigoli morcu in natura.
 
 Misyon sen suksespul, ji moy lima haul in dexa nun sen in kafas. Jawguyen de kafas velosi xorjui ki multi maymun vole na oko haul. Multi maymun sen jumbi na multi paya cel na oko yesen hewan yon suli oko. Fe folo, multi turiyen ata, ji ton ete, multi maydoyen ata, hu da le ewreka interesne mamba fe klientelari.
 
@@ -367,7 +367,7 @@ S: "Ji?"
 
 PL: "Ji mi jundwan etesu hormonali sistema; denmaner, mi gibe tas ete problema fe sehaje hu da burgi etesu jiwa finki ete morcu."
 
-Dolfin le kufi ore. Te gibe golmon tas plastikoli lilbao hu da sipul sen multimo maxmo fobine kos tosu okonenible hatari. Swimo no sen truti. Plastikoli lilbao hare max golmon kom te. Ji swimo no vole na izin ki hin bobo mogekal xey xa triunfa. Abruto, kacupa ata ji swal: "Mas kete of uyu sen maxmo xetocubon?" Swimo, hu da multi befobi na beyam, jawabu: "O, dente yakin sen den alo te." Ji swimo ixara plastikoli lilbao.
+Dolfin le kufi ore. Te gibe golmon tas plastikoli lilbao hu da sipul sen multimo maxmo fobine kos tosu oko-nenible hatari. Swimo no sen truti. Plastikoli lilbao hare max golmon kom te. Ji swimo no vole na izin ki hin bobo mogekal xey xa triunfa. Abruto, kacupa ata ji swal: "Mas kete of uyu sen maxmo xetocubon?" Swimo, hu da multi befobi na beyam, jawabu: "O, dente yakin sen den alo te." Ji swimo ixara plastikoli lilbao.
 
 Dolfin: "Kam mi am gibe maxpul golmon tas te?" Swimo no jawabu. Swimo le awfiraru! Dolfin xerca swimo, mas no ewreka te. Kos to, dolfin musi na deklara ki plastikoli lilbao le triunfa. Mas pia plastikoli lilbao le kwasi awcu.
 
@@ -425,7 +425,7 @@ Remora: "Si, yu hare bala sadafa."
 
 Kacupa: "Mas, yu abil na fale keto pro mi?"
 
-Remora: "Mi abil na yam kexru-hewan hu da xunjan per yu. Ji denmaner, yu xa sen maxmo meli fol alo kacupa. Kam yu swikara kontrata?"
+Remora: "Mi abil na yam kexruhewan hu da xunjan per yu. Ji denmaner, yu xa sen maxmo meli fol alo kacupa. Kam yu swikara kontrata?"
 
 Kacupa: "Eger mi swikara, keto ger okur?"
 
@@ -437,20 +437,20 @@ Kacupa: "Yu fale keto?"
 
 Remora: "Banto pospel mi yon misu koda."
 
-Sipul, lungo xilo binde koda de remora tas lilnavi de mahi-bujoyen. Fe leya, mahi-bujoyen le bujo remora. Mahi-bujoyen le plasi rinjon wey koda, ji te le binde xilo tas hin rinjon. Eger remora binde se tas baharili hewan, mahi-bujoyen ger abil na pospel xilo cel na bujo hin hewan.
+Sipul, lungo xilo binde koda de remora tas lilnavi de mahibujoyen. Fe leya, mahibujoyen le bujo remora. Mahibujoyen le plasi rinjon wey koda, ji te le binde xilo tas hin rinjon. Eger remora binde se tas baharili hewan, mahibujoyen ger abil na pospel xilo cel na bujo hin hewan.
 
-Kacupa: "Keto okur? Kam yu sahay mahi-bujoyen?"
+Kacupa: "Keto okur? Kam yu sahay mahibujoyen?"
 
 Remora: "No. Mi vole na hurugi mi! Am suyon maxmo velosi! Imi abil na ciru xilo!"
 
 Kacupa: "Mi no abil na suyon maxmo velosi! Am esto na woju mi! Mi vole na jiwa!"
 
-Remora duregi na woju kacupa yon sesu susutul. Kacupa paniko. Remora sen sotikal. Xafe kurto watu, mahi-bujoyen abil na cudu kacupa yon sesu hanta. Mahi-bujoyen morgi kacupa. Remora finili esto na susu, ji te posbinde se of kacupa.
+Remora duregi na woju kacupa yon sesu susutul. Kacupa paniko. Remora sen sotikal. Xafe kurto watu, mahibujoyen abil na cudu kacupa yon sesu hanta. Mahibujoyen morgi kacupa. Remora finili esto na susu, ji te posbinde se of kacupa.
 
-Mahi-bujoyen: "Bon bujo, remora. Prehay bankwanti yam."
+Mahibujoyen: "Bon bujo, remora. Prehay bankwanti yam."
 
 Remora: "Am nun ofplasi rinjon. Misu koda guton!"
 
-Mahi-bujoyen: "No, yu no haji preporta tas mi kufi baharili hewan.
+Mahibujoyen: "No, yu no haji preporta tas mi kufi baharili hewan.
 
-Remora fikir: "Mahi-bujoyen le cipen mi. Te le loga ki un hewan xa sen kufi. Na swikara kontrata de nenbekoneyen le no sen bon idey!"
+Remora fikir: "Mahibujoyen le cipen mi. Te le loga ki un hewan xa sen kufi. Na swikara kontrata de nenbekoneyen le no sen bon idey!"

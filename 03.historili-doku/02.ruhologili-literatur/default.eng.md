@@ -90,7 +90,7 @@ Amen
 
 ### Salom Maria
 
-Salom Maria, pul fe teo-lutuf,
+Salom Maria, pul fe teolutuf,
 
 Prabu sen ton yu.
 
