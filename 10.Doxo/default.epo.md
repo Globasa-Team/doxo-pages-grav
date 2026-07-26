@@ -3,7 +3,7 @@ title: 'Globasaj legaĵoj'
 visible: false
 ---
 
-Praktiku vian legadon kaj komprenon de Globasa:
+Praktiku vian legadon kaj komprenon de Globaso:
 
 Elŝutu la [PDF-on de Doxo](Doxo_Cormorant%20Upright_Medium.pdf), kiu enhavas ĉiujn tekstojn.
 
