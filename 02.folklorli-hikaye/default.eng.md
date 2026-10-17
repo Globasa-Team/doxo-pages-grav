@@ -3,8 +3,9 @@ title: 'Folklorli Hikaye'
 taxonomy:
     category:
         - 'Folk Tales'
+published: true
 ---
 
-* [Aesop's Fables](fabula-fal-esopo)
-* [Fairy Tales](pearili-hikaye)
-* [Other Folktales](alo-folklorli-hikaye)
+* [Fabula fal Esopo](fabula-fal-esopo)
+* [Pearili Hikaye](pearili-hikaye)
+* [Alo Folklori Hikaye](alo-folklorli-hikaye)

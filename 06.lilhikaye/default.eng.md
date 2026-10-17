@@ -2,6 +2,7 @@
 title: Kurto-Hikaye
 ---
 
-* [Stories by Vanege](hikaye-fal-vanege)
-* [The Tell-Tale Heart, by Edgar Allan Poe](siri-logane-tutum)
-* [Other Stories](alo-hikaye)
+* [Hikaye fal Vanege](hikaye-fal-vanege)
+* [Hikaye fal Sarin Ci](hikaye-fal-sarin-ci)
+* [Siri-logane Tutum, fal Edgar Allan Poe](siri-logane-tutum)
+* [Alo Hikaye](alo-hikaye)

@@ -1,6 +1,7 @@
 ---
 title: 'Historili Doku'
+published: true
 ---
 
-* [Universal Declaration of Human Rights](globatotal-deklaradoku-tem-insanli-haki)
-* [Spiritual Literature](ruhologili-literatur)
+* [Globatotal Deklaradoku tem Insanli Haki](globatotal-deklaradoku-tem-insanli-haki)
+* [Ruhologili Literatur](ruhologili-literatur)
