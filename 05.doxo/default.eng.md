@@ -8,5 +8,5 @@ Practice your Globasa reading and comprehension: Download the [Doxo PDF](Doxo_Co
 Or use the following [Google Doc](https://docs.google.com/document/d/1WrtYLhfHT1qGNWsl5CmAGbgrk5qh5jX_UgW6oPG-C6w/edit?usp=sharing) to create your own PDF. 
 
 * [Folktales](/folklorli-hikaye)
-* [Historic Documents](/historili-doku)
 * [Short Stories](/lilhikaye)
+* [Historic Documents](/historili-doku)
