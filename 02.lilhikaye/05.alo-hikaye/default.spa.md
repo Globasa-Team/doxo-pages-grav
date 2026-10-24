@@ -4,6 +4,7 @@ taxonomy:
     category:
         - Other
 media_order: 'fruta 01.mp3,fruta 02.mp3'
+published: true
 ---
 
 ### Termodo or Nentermodo Fruta
