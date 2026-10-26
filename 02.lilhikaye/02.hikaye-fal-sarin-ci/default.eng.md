@@ -358,7 +358,7 @@ Mi sen ganjonpul ji, banmaner, mi vole na wawa, finfe ki misu kuzin xoru na sifr
 
 Amanda moywatu radya otimaismo. Te hare multi doste. Te sen jixifil, amusane, populer ji palafil.
 
-Fe alo comen, Sandra sen sotilil, jandan ji te preferi na solo pasa watu. Multi te loga ki te sen ajabu koski te max preferi na programa videoyuxi kom no labas modali labas ji na idi cel parti.
+Fe alo comen, Sandra sen sotilil, jandan ji te preferi na solo pasa watu. Multi te loga ki te sen ajabu koski te max preferi na programa videoyuxi kom na labas modali labas ji na idi cel parti.
 
 Sandra fikir ki multi te sanguli loga coxo tem te. Ible, dento sen to hu da sengi te sotilil ji posxinloyfil.
 
