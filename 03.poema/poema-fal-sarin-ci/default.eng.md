@@ -104,7 +104,7 @@ har tami nasiha.
 
 El lama kalamu mi le ewreka,  
 to haji abil na eskri,  
-roso sen sesu kolor,  
+roso sen tesu kolor,  
 o, jandan zarifya.  
 
 Mi sen solo in luminkal kamer  

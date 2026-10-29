@@ -90,13 +90,13 @@ Amen
 
 ### Salom Maria
 
-Salom Maria, pul fe teolutuf,
+Salom Maria, nimatupul,
 
 Prabu sen ton yu.
 
-Yu sen barakado intre femixu,
+Barakado sen yu intre femixu,
 
-ji te sen barakado, fruta de yusu rahim, Yesu.
+ji barakado sen fruta de yusu rahim, Yesu.
 
 Santo Maria, Matre de Teo,
 
