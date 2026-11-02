@@ -9,4 +9,6 @@ Or use the following [Google Doc](https://docs.google.com/document/d/1WrtYLhfHT1
 
 * [Folktales](/folklorli-hikaye)
 * [Short Stories](/lilhikaye)
+* [Poetry](/poema)
+* [History and Culture](/histori-ji-kultura)
 * [Historic Documents](/historili-doku)

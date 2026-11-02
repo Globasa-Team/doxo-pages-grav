@@ -1,5 +1,5 @@
 ---
-title: Histori
+title: 'Histori ji Kultura'
 ---
 
 * [Jaxnedin](jaxnedin)
