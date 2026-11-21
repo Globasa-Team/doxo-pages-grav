@@ -12,5 +12,5 @@ Aŭ uzu la jenan [Google-dokumenton](https://docs.google.com/document/d/1WrtYLhf
 * [Popolrakontoj](/folklorli-hikaye)
 * [Noveloj](/lilhikaye)
 * [Poezio](/poema)
-* [Historio kaj kulturo](histori-ji-kultura)
+* [Historio kaj kulturo](/histori-ji-kultura)
 * [Historiaj dokumentoj](/historili-doku)

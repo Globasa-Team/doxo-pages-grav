@@ -12,7 +12,7 @@ O utiliza el siguiente [documento de Google](https://docs.google.com/document/d/
 * [Cuentos populares](/folklorli-hikaye)
 * [Cuentos cortos](/lilhikaye)
 * [Poesía](/poema)
-* [Historia y cultura](histori-ji-kultura)
+* [Historia y cultura](/histori-ji-kultura)
 * [Documentos históricos](/historili-doku)
 
 
