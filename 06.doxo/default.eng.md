@@ -1,14 +1,12 @@
 ---
-title: 'Globasa Readings'
+title: Doxo
 visible: false
 ---
 
-Practice your Globasa reading and comprehension: Download the [Doxo PDF](Doxo_Cormorant%20Upright_Medium.pdf) containing all texts. 
+Am abyasa Globasali doxo ji aham: Am infrafuha [PDF fe Doxo](Doxo_Cormorant%20Upright_Medium.pdf) har moy texto.
 
-Or use the following [Google Doc](https://docs.google.com/document/d/1WrtYLhfHT1qGNWsl5CmAGbgrk5qh5jX_UgW6oPG-C6w/edit?usp=sharing) to create your own PDF. 
-
-* [Folktales](/folklorli-hikaye)
-* [Short Stories](/lilhikaye)
-* [Poetry](/poema)
-* [History and Culture](/histori-ji-kultura)
-* [Historic Documents](/historili-doku)
+* [Folklorli hikaye](/folklorli-hikaye)
+* [Lilhikaye](/lilhikaye)
+* [Poema](/poema)
+* [Histori ji kultura](/histori-ji-kultura)
+* [Historili doku](/historili-doku)
